@@ -1,4 +1,4 @@
-# Privacy Policy
+Privacy Policy
 
 Blue Cannibal built the Kids Drawing app as a Free app. This SERVICE is provided by Blue Cannibal at no cost and is intended for use as is.
 
